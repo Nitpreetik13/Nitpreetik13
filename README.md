@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Nitpreetik13
-- 👀 I’m interested Data Science
-- 🌱 I’m currently learning Data Science
-- 💞️ I’m looking to collaborate on data science projects
+- 👀 The Greatest Pivoter of the world... meet me!
 - 📫 How to reach me Reach me:- nitpreet.singh@hotmail.com
 
 <!---
